@@ -1,0 +1,2 @@
+# premium-koftgari-001-koftgari-silver-overlay-patter
+Tired of losing critical heat curves and pattern notes for your koftgari silver overlay projects? This Notion template keeps every temperature log and overlay design organized, so you can replicate your best work every time.  Koftgari Silver Overlay Pattern and Heat Log solves the chaos of scattered paper notes and forgotten kiln settings. It provi
